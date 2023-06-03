@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Fundyk-Z
+- 👀 I’m interested in JAVA
+- 🌱 I’m currently learning JAVA
+- 💞️ I’m looking to collaborate on EBAY
+- 📫 How to reach me -
+
+
